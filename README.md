@@ -1,0 +1,1 @@
+# takumisugihara.github.io
